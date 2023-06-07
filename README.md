@@ -9,5 +9,4 @@ Meu nome é Shailon Lima.
 Você entrar em contato comigo 📫
 ~ shailon.lima@escola.pr.gov.br
 
-
-https://media.giphy.com/media/xT1Ra1dFWAX6ZO1dq8/giphy.gif
+![](https://media.giphy.com/media/y65PWYdDcUSSFZvldl/giphy.gif)
